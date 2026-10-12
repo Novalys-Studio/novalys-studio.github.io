@@ -1,1 +1,0 @@
-# novalys-studio.github.io
